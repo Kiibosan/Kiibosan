@@ -1,3 +1,3 @@
 ## this is wip dont mind me
 
-❗[Profile view counter on GitHub](https://github.com/Kiibosan/Kiibosan)
+(https://github.com/Kiibosan/Kiibosan&color=000000&label=losers)
