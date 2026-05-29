@@ -4,3 +4,5 @@
 ![](https://komarev.com/ghpvc/?username=Kiibosan&color=9d1c0f&label=losers)
 
 ## check strawpage before interacting ❤
+
+Hello!! I'm Kiibo but you can also call me Finnegan or Matylda!! I'm 18, I have autism, dyscalculia, dyspraxia and uhhh other stuff i think.. im silly and im awesome!!
